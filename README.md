@@ -1,0 +1,1 @@
+# yenora2ndstatic22
